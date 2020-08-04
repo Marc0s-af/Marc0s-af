@@ -11,4 +11,4 @@ Não trabalho em nenhum lugar AINDA! Mas olha,tenho 15 anos de idade, sou louco 
 
 🤓 Eu gosto muito de contribuir para o avanço das outras pessoas dentro da programação, é incrivel como uma simples ajuda pode mudar a carreira de uma pessoa nesse mercado.
 
-💬 Entre em contato comigo: email: marquiimpessoa@gmail.com |
+💬 Entre em contato comigo: email: marquiimpessoa@gmail.com | Linkedin: https://www.linkedin.com/in/marcos-antonio-24349b1b4
